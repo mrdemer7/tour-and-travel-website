@@ -20,4 +20,4 @@
 
 ![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/5a83a5dc-e335-4256-acc9-768c006f1f79)
 
-![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/252caccc-8921-4320-b19b-05be86107edd)
+![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/e4ac7ddb-4ed0-4541-addc-c308f731df17)
