@@ -12,7 +12,12 @@
 
 ![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/5eeba3fb-ada8-4511-940c-5121527349e8)
 
+![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/06a054a9-89c1-42fd-9c44-7ba0e7aabf7d)
 
+![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/9f268ba4-41eb-4940-94ab-2732512efc86)
 
+![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/f3184395-61d4-4369-b38e-4bed0a0eabca)
 
+![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/5a83a5dc-e335-4256-acc9-768c006f1f79)
 
+![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/252caccc-8921-4320-b19b-05be86107edd)
