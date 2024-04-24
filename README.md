@@ -10,11 +10,8 @@
 
 ![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/02d2f135-9526-4cc5-a4a5-92d46f0c808d)
 
-![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/398be690-30c2-4f64-b86b-ae56c194c7ae)
+![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/5eeba3fb-ada8-4511-940c-5121527349e8)
 
-![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/27612be5-9980-404d-ae0f-fba0cee72c9d)
-
-![image](https://github.com/mrdemer7/tour-and-travel-website/assets/117861145/f81e6984-1b88-4c49-993a-8fa2ce8d25e0)
 
 
 
